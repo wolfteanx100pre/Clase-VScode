@@ -13,4 +13,4 @@ obligaciones de los negocios, ocurrirá con frecuencia que los
 placeres deben ser repudiados. y molestias aceptadas.El sabio, por 
 tanto, se atiene siempre en estas cuestiones a este principio de
 selección: rechaza los placeres para conseguir otros placeres
-mayores, o soporta nicees para evitar nicees peores".
+mayores, o soporta nicees para evitar nicees peores". sentimientos 
